@@ -1,0 +1,1 @@
+here to collect about bitcoin
